@@ -1,5 +1,6 @@
 Title: Universe 34 Trilogy - Outline and Core Themes
 
+Rule 34 - If it exists there is porn of it.
 Overview:
 A speculative erotic trilogy exploring the boundaries of desire, identity, culture, and societal governance through the lens of a young woman's journey into an alternate world where fantasy becomes reality.
 
